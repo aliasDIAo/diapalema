@@ -1,0 +1,2 @@
+# diapalema
+leducation  pour tous
